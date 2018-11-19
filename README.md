@@ -1,3 +1,0 @@
-BLIND HELPER
-
-Coming soon
